@@ -1,0 +1,2 @@
+Why did you choose the CompE track instead of the EE track?
+	At first, I was planning on going for EE but then changed my mind and decided to go with CompE instead since it's more focased on computers than EE. 
